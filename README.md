@@ -21,7 +21,7 @@ I’m looking to collaborate on:
 ## 📫 Contact Me
 - Email: suchitayerramsetty999@gmail.com
 - LinkedIn: www.linkedin.com/in/suchita-yerramsetty-0b83b5263
-- GitHub: yerramsettysuchita
+- GitHub: https://github.com/yerramsettysuchita
 
 ## 😄 Pronouns
 She/Her
