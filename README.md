@@ -20,7 +20,7 @@ I’m looking to collaborate on:
 
 ## 📫 Contact Me
 - Email: suchitayerramsetty999@gmail.com
-- LinkedIn: www.linkedin.com/in/suchita-yerramsetty-0b83b5263
+- LinkedIn: https://www.linkedin.com/in/yerramsetty-sai-venakata-suchita-suchi1234
 - GitHub: https://github.com/yerramsettysuchita
 
 ## 😄 Pronouns
